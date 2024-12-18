@@ -8,3 +8,4 @@ Preparation:
 5. Add the spinach and cook for 2-3 minutes until wilted.
 6. Season with salt and pepper to taste.
 7. Serve the curry over rice or with naan.
+יש כאן עוד שורה
