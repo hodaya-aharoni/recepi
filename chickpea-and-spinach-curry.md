@@ -10,4 +10,5 @@ Preparation:
 6. Season with salt and pepper to taste.
 7. Serve the curry over rice or with naan.
 יש כאן עוד שורה
-❤️❤️❤️
+👌👌
+
