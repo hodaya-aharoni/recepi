@@ -1,4 +1,5 @@
 Ingredients:🤤
+שימו לבב!!!!
 - 1 can of chickpeas, drained and rinsed
 Preparation:
 1. Heat the olive oil in a pan over medium heat. Add the diced onion and sauté until soft, about 5 minutes.
